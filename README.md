@@ -1,3 +1,3 @@
 # The BIM Journey and Much More...
 
-Masters in Construction Management Technology @ Purdue University
+<I> "Every Moment Is A Fresh Beginning" </I>
