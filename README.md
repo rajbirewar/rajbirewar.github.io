@@ -1,3 +1,3 @@
-# Raj Birewar
+# The BIM Journey and Much More...
 
 Masters in Construction Management Technology @ Purdue University
