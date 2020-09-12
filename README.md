@@ -1,6 +1,6 @@
 # The BIM Journey and Much More...
 
-<I> "Every Moment Is A Fresh Beginning" </I>
+<I> "Every Moment Is A Fresh Beginning" </I>     
 “Do it for the piece of sky we are stealing with our building. You do it for the air that will be displaced, and most of all, you do it for the concrete. Because it is as delicate as blood!”
 
 ‘Smorgasbord of Eccentricities’ - the fond annotation I have of my family, aptly describes the reason why the domain of Construction Management was ingrained in me since my childhood. Despite being well established in their foundational fields, my father and elder brother have been consistently associated with numerous construction projects taking place across the state. Their incessant efforts to ensure successful completion of activities as per the intended schedule coerced me to establish a correlation between effective planning and execution of construction projects. In order to polish this indistinct relationship and dive deeper into the minutiae of this genre, I decided to pursue masters in Construction Management Technology at Purdue University. 
