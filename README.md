@@ -8,7 +8,7 @@
 
 Having acquired a diverse technical knowledge through five multifaceted internships- amounting to a total of about 16 months, I am primarily associated with the domains of BIM-Driven Construction Project Management and Advanced VDC Technologies. 
 
-Currently- I am pursuing my Master's Thesis titled: 'Generative Design for Construction Layout and Planning'. Through my association with the Computer Graphics Technology Department, I have had the opportunity to guide more than 200 students in the realm of BIM and Construction Visualization. Additionally, I serve as the BIM 360 Project Admin for all academic VDC Projects at Purdue University. 
+Currently- I am pursuing my Master's Thesis titled: 'Generative Design for Construction Layout and Planning'. Through my association with the Computer Graphics Technology Department, I have had the opportunity to guide more than 200 students in the realm of VDC and Construction Visualization. Additionally, I serve as the BIM 360 Project Admin for all academic VDC Projects at Purdue University. 
 
 Looking for Full Time Opportunities starting May 2021.
 
