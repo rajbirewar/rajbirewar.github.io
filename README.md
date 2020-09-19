@@ -1,4 +1,4 @@
-# The BIM Journey and Life Stories...
+# The BIM Journey and Life Stories!
 
 <I> "Every Moment Is A Fresh Beginning" </I>
 
@@ -12,4 +12,4 @@ Currently- I am pursuing my Master's Thesis titled: 'Generative Design for Const
 
 Looking for Full Time Opportunities starting May 2021.
 
-<B> <I> May I also request you to please have a look at the following links for intricate details on my technical and non-technical work background. </B> </I>
+<B> <I> May I also request you to please have a look at the following links for intricate details on my technical and non-technical work background. </I> </B>
